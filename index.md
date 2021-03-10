@@ -13,3 +13,6 @@ have his back, and that's what matters.
 * kind
 
 > I Am On A Curiosity Voyage, And I Need My Paddles To Travel.
+
+<img src="https://hips.hearstapps.com/hmg-prod.s3.amazonaws.com/images/dustin-1563290010.jpg?crop=0.836xw:0.836xh;0,0&resize=480:*"/>
+
