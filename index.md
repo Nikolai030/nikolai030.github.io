@@ -12,4 +12,4 @@ have his back, and that's what matters.
 * nerd
 * kind
 
-> "I Am On A Curiosity Voyage, And I Need My Paddles To Travel."
+> I Am On A Curiosity Voyage, And I Need My Paddles To Travel.
