@@ -11,3 +11,5 @@ have his back, and that's what matters.
 * egalitarian
 * nerd
 * kind
+
+> "I Am On A Curiosity Voyage, And I Need My Paddles To Travel."
